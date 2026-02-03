@@ -24,15 +24,15 @@
     <tr>
       <td>
         <br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info
+      ONE WINGED ANGEL .<br>
+      <br>
+      - SEPHI, THORNE, NOCTIS. -<br>
+      - PLURAL/SYS, ANXIETY, AUDHD; INT WITH CARE -<br>
+      /POKEMON, FINAL FANTASY, MEGAMAN, WARFRAME, DBZ, JJBA\<br>
+      <br>
+      19 y/o, transgender man, artist, writer, singer<br>
+      regi community since 2020, looking for new regis!<br>
+      please talk to me, i don't bite :3 
         <br>
           <br>
       </td>
