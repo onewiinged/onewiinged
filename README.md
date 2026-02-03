@@ -26,7 +26,7 @@
         <br>
       ONE WINGED ANGEL .<br>
       <br>
-      - SEPHI, THORNE, NOCTIS. -<br>
+      - SEPHIROTH, THORNE, NOCTIS. -<br>
       - PLURAL/SYS, ANXIETY, AUDHD; INT WITH CARE -<br>
       /POKEMON, FINAL FANTASY, MEGAMAN, WARFRAME, DBZ, JJBA\<br>
       <br>
