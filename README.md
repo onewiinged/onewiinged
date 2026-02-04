@@ -29,7 +29,7 @@
       - SEPHIROTH, THORNE, NOCTIS. -<br>
       - PLURAL/SYS, ANXIETY, AUDHD; INT WITH CARE -<br>
       /POKEMON, FINAL FANTASY, MEGAMAN, WARFRAME, DBZ, JJBA\<br>
-      <br>
+      \PROSHIP, ZIONIST, T.R.A.S.H, ETC. STRICT DNI./<br>
       19 y/o, transgender man, artist, writer, singer<br>
       regi community since 2020, looking for new regis!<br>
       please talk to me, i don't bite :3 
